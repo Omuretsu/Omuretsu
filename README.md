@@ -1,5 +1,9 @@
-### Hi there 👋
+# Omelet(Omuretsu)🐣.
 
+- I live in Tokyo🗼.
+- I'm a University Student🙋‍♂️.
+- My hobbies are watching baseball games⚾️ and taking pictures📸.
+- My Twitter Account is [@_O602](https://twitter.com/_o602)
 <!--
 **Omuretsu/Omuretsu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
