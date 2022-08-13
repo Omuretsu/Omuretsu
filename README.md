@@ -1,4 +1,4 @@
-# Omelet(Omuretsu)🐣.
+# Omelet(Omuretsu)🐣
 
 - I live in Tokyo🗼.
 - I'm a University Student🙋‍♂️.
